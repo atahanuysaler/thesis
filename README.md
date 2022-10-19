@@ -1,2 +1,2 @@
 # thesis
-This thesis’ main goal is to analyse the effects of the COVID-19 measures on Turkish Theatre Industry, mainly in Istanbul. 
+This thesis’ main goal is to analyse the effects of the COVID-19 measures on Turkish Theatre Industry, mainly in Istanbul. The chronological journey and the importance of theatre in Turkish culture will be introduced through many perspectives. Actors and managers have supplied the data used in the tables while colleagues that have spent time in the thespian scene within Istanbul provided commentary.
